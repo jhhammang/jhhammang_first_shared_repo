@@ -1,3 +1,3 @@
-# README?!
+# README!?
 
-duuuuuuuuuuuuuuuuuuuuuuuh. Who's your favorite Spongebob character?
+ Who's your favorite Spongebob character?
